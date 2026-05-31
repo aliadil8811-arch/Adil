@@ -29,4 +29,4 @@ I will add my projects here as I continue learning and building new things.
 - Achieve good academic results
 
 ## Contact
-GitHub: @yourusername
+gmail: aliadil8811@gmail.com
